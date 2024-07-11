@@ -64,6 +64,21 @@ SCREENSHOTS
 
 ![IMG-20240710-WA0024](https://github.com/Bansah-Kplorla/rn-assignment7-11144085/assets/170067731/996313ec-5712-4103-8a65-7b1c1cbf809f)
 
+![IMG-20240710-WA0019](https://github.com/Bansah-Kplorla/rn-assignment7-11144085/assets/170067731/40e8fbe1-42cf-4288-aa98-ca5e6652da89)
+
+![IMG-20240710-WA0027](https://github.com/Bansah-Kplorla/rn-assignment7-11144085/assets/170067731/e046e9ad-de71-4edf-906e-ab141c289f0b)
+
+![IMG-20240710-WA0033](https://github.com/Bansah-Kplorla/rn-assignment7-11144085/assets/170067731/cac39ddf-a4a8-4008-9cc5-6d2cc214e1d8)
+
+![IMG-20240710-WA0034](https://github.com/Bansah-Kplorla/rn-assignment7-11144085/assets/170067731/f4cf3a06-f559-4bae-8dd6-f85c31c22a84)
+
+![IMG-20240710-WA0023](https://github.com/Bansah-Kplorla/rn-assignment7-11144085/assets/170067731/f852f3a6-c850-4f2e-8e6c-12916a58cb89)
+
+
+
+
+
+
 
 
 
