@@ -42,6 +42,9 @@ SCREENSHOTS
 
 ![IMG-20240710-WA0014](https://github.com/Bansah-Kplorla/rn-assignment7-11144085/assets/170067731/99020aa6-2fa9-4ecb-bcb9-dc9037f86616)
 
+![IMG-20240710-WA0016](https://github.com/Bansah-Kplorla/rn-assignment7-11144085/assets/170067731/48896e89-6712-4562-aac3-6bdce573096f)
+
+
 
 
 
